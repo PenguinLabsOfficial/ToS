@@ -1,2 +1,2 @@
 # ToS
-Comming Soon
+Coming Soon
